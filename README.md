@@ -19,7 +19,7 @@ Wish you can be treated kindly by the world and have a warm and moving life!
 
 Chapter1
 
-
+A cool boy and a lovely girl met for the first time in a nice day! Then, a sweet story is slowly unfolding. 
 
 
 
