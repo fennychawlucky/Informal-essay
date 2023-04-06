@@ -23,6 +23,7 @@ A cool boy and a lovely girl met for the first time in a nice day! Then, a sweet
 
 
 The end!
+
 We both have our road to spend. He is still a shining person, and She is still artistic and sensitive. Nobody can really enter her heart. To be honest, a sunning boy is her love maybe many years ago. The life is full of color, just to pursue what really belongs to you!
 
 
