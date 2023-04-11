@@ -3,7 +3,7 @@ Let the past gone with the wind and look for a new-start!
 
 Overview
 
-Hi, darling! Have you watched Jojo Moyes's novel！
+Hi, darling! Have you read Jojo Moyes's novel！
 
 These soft and warm words have touched me! Hope these warm and full of sunshine
 stroy can also left something in your heart! Today, I know that one's emotion is the most complex part in one's heart. Someone can fall love in
