@@ -34,6 +34,7 @@ We both have our road to spend. He is still a shining person, and She is still a
 我很困惑。为什么到现在才体会到读抚慰自己心灵的书是陪伴自己的最好方式，也许真的到了某个年龄，达到了作者所处的状态。也许阅读他们的作品是越过这些煎熬时刻的最佳方式。
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 摘自网友：人生会失去很好的朋友和恋人，书却永远忠诚如一。
+-------------------------------------------------------------
 In this vacation, she has read two famous book. One is from an author, Dazai Osamu, who commited suicide after writen NO LONGER HUMAN. But what a pity, I haven't been in the same feeling in the protagonist. I met one elder brother, he told me that reading some philosophy and history rather than the psychological book. I think a little sensible and I was recommended the History of Western Philosophy from Bertrand Russell. And I was inspired by a book. So recently, I'm in this envrionment of reading.
 
 
