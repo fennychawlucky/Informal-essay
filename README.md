@@ -32,7 +32,7 @@ The boy took the initiative to invite the girl to visit his home. In the boy's v
 The boy taught the girl how to kiss the most emotionally and developed more diverse kisses, which the girl had never thought of. The girl doesn't know if the boy has the same heart and joy as herself, and feels the sweetness of love, but the girl knows she has fallen into this sweet love. Now, the girl feel like she is the most happiness woman in the world.
 The end!
 
-We both have our road to spend. He is still a shining person, and She is still artistic and sensitive. Nobody can really enter her heart. To be honest, a sunning boy is her love maybe many years ago. The life is full of color, just pursue what really belongs to you!
+We both have our road to spend. He is still a shining person, and She is still artistic and sensitive. Nobody can really enter her heart for many years since middle school. To be honest, the sunning boy is her love maybe after many years. Life is full of color, just pursue what really belongs to you!
 
 
 --The Queen's Band is her favorite. Freddie Mercury's singing has accompanied her for many years, so she is not alone.
