@@ -17,6 +17,8 @@ Yeah, I should live boldly, push myself, not settle, just live well, just live. 
 Wish you can be treated kindly by the world and have a warm and loving life!
 
 #Chapter1
+
+
 Love is marvelous, isn't it. 
 No one knows what the relationship is between this boy and girl. Ok, let's say that it's more than friendship, but not love in lovers. Let's go to her heart to feel the most of truely feelings.
 
