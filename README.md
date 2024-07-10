@@ -6,26 +6,32 @@ Overview
 Hi, darling! Have you read Jojo Moyes's novel！
 
 These soft and warm words have touched me! Hope these warm and full of sunshine
-stroy can also left something in your heart! Today, I know that one's emotion is the most complex part in one's heart. Someone can fall love in
-your heart regardless of your current age. You can like or admire someone regardless of their gender. The switch that opens the mind maybe 
-just a glance, a short conversation, or an interesting song, movie, or a sport. What a wonderful world, and What a magical human being! 
-Here, I want to record or present some thinkings and good memories that I never want to forgot. A slight regret is the normal in life! 
-But you can follow your heart to do some interesting thing and spend a colorful life.
+stroy can also leave something in your heart! Today, I know that one's emotion is the most complex part of one's heart. Someone can fall love in
+with your heart regardless of your current age. You can like or admire someone regardless of their gender. The switch that opens the mind may be just a glance, a short conversation, or an interesting song, movie, or a sport. What a wonderful world, and What a magical human being! 
+Here, I want to record or present some thoughts and good memories that I never want to forget. A slight regret is the normal in life! 
+But you can follow your heart to do some interesting things and have a colorful life.
 When I feel sad, I will remember the said that Will told Lou: 
 “You’re going to feel uncomfortable in your new world for a bit. But I hope you feel a bit exhilarated too. Live boldly. Push yourself. Don’t settle. Just live well. Just live. Love, Will.”
-Yeah, I should live boldly, push myself, do not settle, just live well, just live. One day, I also expect to sit beside the Champs Elysees, tast the coffee that Will loved, feel my L'Artisan Perfumeur. That must be the fantastic time!
+Yeah, I should live boldly, push myself, not settle, just live well, just live. One day, I also expect to sit beside the Champs Elysees, taste the coffee that Will loved, and feel my L'Artisan Perfumeur. That must be a fantastic time!
 
-Wish you can be treated kindly by the world and have a warm and moving life!
+Wish you can be treated kindly by the world and have a warm and loving life!
 
 #Chapter1
+Love is marvelous, isn't it. 
+No one knows what the relationship is between this boy and girl. Ok, let's say that it's more than friendship, but not love in lovers. Let's go to her heart to feel the most of truely feelings.
 
-No one knowns what the relationship is between this boy and girl. Ok, let's say that it's more than friendship, but not love in lovers. Let's go to her heart to feel the most of truely feelings.
+A cool boy and a lovely girl met for the first time on a nice day! Then, a sweet story is slowly unfolding. 
+They have had a significant and marvelous time. What a surprise is that a quiet and introverted girl can play parkour and thrilling sports. In a night full of wind, they play the skate in a marked square. The girl showed the skating skills of all she learned. At this time, this boy learned the girl's mastered. After that, they try to learn other skills.
 
-A cool boy and a lovely girl met for the first time in a nice day! Then, a sweet story is slowly unfolding. 
-They have spend a significant and marvelous time. What a surprise is that a quiet and introverted girl can play the parkour and thrilling sports. In a night full of wind, they play the skate in a marked square. The girl firstly showed the skating skills of all her learned. At this time, this boy just learned all the girl mastered. After that, they try to learn other skills.
+After a long time, there are some updates. The boy has lived in the girl's heart. All the honey times are valuable and unforgettable for the girl and she will never forget them.
+Let's review this wonderful time together. The boy and girl had a great time on a summer night.
+They took a walk and chatted along the beach, and even walked into a children's playground to play. That night was so happy.
+
+The boy took the initiative to invite the girl to visit his home. In the boy's very interesting study, the girl had a happy evening. The books and all the decorations on the bookshelf made the girl feel novel and interesting, and she couldn't help but want to delve deeper into everything. They played chess, and both of them were tired because it was a very different way of playing. Haha, open the door to a new world. Later, they got tired and started listening to the music that the boy liked. The atmosphere of this night was wonderful. Time passed so quickly amidst the sound of classical and old pop music. Previously, the girl felt that the night was long, but this night, the girl felt that the night time was too short. As the night passed and the sky gradually brightened, the girl saw the first morning glow from the window, quietly enveloping the calm sea and high bridge in the distance. But the exploration of the girl's study is still not over because there are so many wonderful things. 
 
 
 
+The boy taught the girl how to kiss the most emotionally and developed more diverse kisses, which the girl had never thought of. The girl doesn't know if the boy has the same heart and joy as herself, and feels the sweetness of love, but the girl knows she has fallen into this sweet love. Now, the girl feel like she is the most happiness woman in the world.
 The end!
 
 We both have our road to spend. He is still a shining person, and She is still artistic and sensitive. Nobody can really enter her heart. To be honest, a sunning boy is her love maybe many years ago. The life is full of color, just pursue what really belongs to you!
